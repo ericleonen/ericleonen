@@ -1,1 +1,1 @@
-[ericleonen.github.io](ericleonen.github.io)
+[ericleonen.com](ericleonen.com)
